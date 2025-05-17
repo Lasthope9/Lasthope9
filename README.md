@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lasthope9
+- 👋 Hi, I’m Kulani Letsoalo
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Software Development.
 - 💞️ I’m looking to collaborate on creating eco-friendly websites and Applications.
