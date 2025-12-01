@@ -18,7 +18,7 @@ Projects that promote environmental awareness
 Green tech solutions and community-driven applications
 
 📬 Get in Touch
-📧 Email: kulani7@gmail.com
+📧 Email: www.kulani7@gmail.com
 
 💬 WhatsApp: +27 73 279 7213
 
