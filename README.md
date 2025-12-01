@@ -20,7 +20,7 @@ Green tech solutions and community-driven applications
 📬 Get in Touch
 📧 Email: www.kulani7@gmail.com
 
-💬 WhatsApp: +27 73 279 7213
+💬 WhatsApp: +27 73 279 7132
 
 😄 Pronouns
 He/Him
